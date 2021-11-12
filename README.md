@@ -1,2 +1,2 @@
 # Resume 
-![Haidar-Ali_Nehme_CV-1](https://user-images.githubusercontent.com/89384538/141468156-244d6d9e-4e35-4662-aaad-f0bc20c391f3.png)
+![Haidar-Ali_Nehme_CV-1](https://user-images.githubusercontent.com/89384538/141480392-ef941a90-c3fc-40a8-b2a4-74753bd306b0.png)
